@@ -1,4 +1,4 @@
-# Published results of yoyo and hannah😋😋
+# Published results of  hannah😋😋
 
 ![Hey there, I'm yoyo this is 阿球圓滾滾](阿球圓滾滾.gif)
 
